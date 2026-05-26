@@ -4,4 +4,4 @@
 
 We like Phighting and a variety of other Roblox related media! Please interact if you do as well.
 
-https://files.catbox.moe/ku29yq.png
+<img width="2048" height="819" alt="image" src="https://github.com/user-attachments/assets/526088d7-92fa-478a-bfb5-580e8a55b05c" />
