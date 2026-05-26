@@ -7,4 +7,4 @@ We like Phighting and a variety of other Roblox and MC related media! Please int
 Artist / Studying psychology. 
 
 <img width="2048" height="819" alt="image" src="https://github.com/user-attachments/assets/526088d7-92fa-478a-bfb5-580e8a55b05c" />
-## ' We're just watching from a distance.. ' ⋆˙⟡
+## We're just watching from a distance.. ⋆˙⟡
