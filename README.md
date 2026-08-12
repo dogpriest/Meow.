@@ -1,4 +1,4 @@
-# Orchid / Darkheart / Priest / Prophet
+# Mimicry / Darkheart / Priest / Prophet
 
 **No DNI. If we feel uncomfortable with you, _we will simply block you_**.
 
